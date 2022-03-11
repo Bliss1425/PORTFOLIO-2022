@@ -1,5 +1,4 @@
 # Portfolio-2022
-### PORTFOLIO-2022
 
 ### ABOUT ME
 
